@@ -1,5 +1,6 @@
 Below is ideal recommendation 
-But if something is needed from me or more importantly you just want to chit-chat always feel free to send a message my way 😁 !!
+
+But if something is needed from me or **more importantly you just want to chit-chat** always feel free to send a message my way 😁 !!
 
 # Meetings:
 Ideally: 
