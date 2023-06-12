@@ -15,6 +15,6 @@ Ideally:
 
 
 # Questions and Help
-- More likely then not if you're reaching out to me you've got questions that need my input - Please send it my way 🙂 !!
+- More likely then not if you're reaching out to me you've got questions that need my input - since only a Subject Matter Expert can answer these question - Please send it my way 🙂 !!
 
 - But if you got questions regarding certain assets and how they work or anything generalistic, feel free to post it in the associated teams channel or group chats!
